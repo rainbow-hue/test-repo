@@ -1,1 +1,1 @@
-The url for the flag is: https://pastebin.com/JrNeLMKk
+The url for the flag is: [Redacted]
